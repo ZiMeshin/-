@@ -1,3 +1,3 @@
 # -这是一个测试文件
-正在测试。
-![image](https://user-images.githubusercontent.com/109092912/178310740-2e076521-c1a1-45d2-a45a-0fb9b2ac5572.png)
+正在测试中。\n
+![KUM$FS~USN1NH`3~AHRKGIS](https://user-images.githubusercontent.com/109092912/178311041-d7720f5b-16b1-48c0-9495-58af0f0cda73.jpg)
